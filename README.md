@@ -1,0 +1,6 @@
+# SPREAD THE WORD SPREAD THE WORD
+FUCK BOSS STUDIO, THEY DONT PAY THEIR DEVELOPERS
+
+
+pass it, pass it 2 are the actual game rbxl files.
+## SPREAD THE WORD
