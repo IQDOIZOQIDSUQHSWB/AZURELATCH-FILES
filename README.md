@@ -10,5 +10,6 @@ https://mega.nz/file/i44VxTYa#8sZ1EQ6uU5dEmRr8ia6v7XWjp66MIPcgkAmZwRpzI0I
 
 DOWNLOAD LINKS ABOVE
 
-pass it, pass it 2 are the actual game rbxl files
+pass it 1, pass it 2 are the actual game rbxl files
+pass it 2 IS THE LATEST GAME FILE
 ## SPREAD THE WORD
