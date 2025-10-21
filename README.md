@@ -12,4 +12,9 @@ DOWNLOAD LINKS ABOVE
 
 pass it 1, pass it 2 are the actual game rbxl files
 pass it 2 IS THE LATEST GAME FILE
+
+
+THE DEVSARE GREEDY AS FUCK
+
+https://docs.google.com/document/d/1IbkjaYunb7fX3auPNzaF58V2SNkPehglvbP1BmJJjpI/edit?tab=t.0
 ## SPREAD THE WORD
